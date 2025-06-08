@@ -9,4 +9,4 @@
 https://kook-lee.notion.site/CodrLee-s-Blog-18d574ea45894516a179985428cc81a3?pvs=4
 
 ### 🤝 contacts me 
-kook03@nate.com
+devethan92@naver.com
